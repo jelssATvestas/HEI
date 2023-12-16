@@ -1,6 +1,7 @@
 ## Træning 
 
 ### Guldæg
+2 hold i hver sin ende. Alle bolde er guldæg. Der laves fangerum i hver ende af banen. Deler gruppen i 2. Det gælder om at fragte alle guldæg hjem i eget mål. Helle i andet holds målfelt.
 
 
 ### Fangeleg
