@@ -1,4 +1,4 @@
-﻿![Billedresultat for hei hÃ¥ndbold logo](Aspose.Words.291b781d-1bae-4480-90c0-94b6ab0932b8.001.jpeg)
+﻿![Billedresultat for hei hÃ¥ndbold logo](../Billeder//HEILOGO.jpeg)
 
 **Håndboldtræning (U6 og U7) d. 4. marts 2023**
 

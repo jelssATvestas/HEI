@@ -1,5 +1,4 @@
-﻿![Billedresultat for hei hÃ¥ndbold logo](Aspose.Words.407d2433-4bc8-4da0-a48d-387a9d3b47df.001.jpeg)
-
+﻿![Billedresultat for hei hÃ¥ndbold logo](../Billeder//HEILOGO.jpeg)
 **Håndboldtræning (U9) d. 2. februar 2023**
 
 **Fokus på dagen:** 

@@ -1,4 +1,5 @@
-﻿![Nissehuen mangler! –InDesign Vidensbibliotek](Aspose.Words.dd146f36-30d2-4ada-beda-78cc664054b1.001.png)![Billedresultat for hei hÃ¥ndbold logo](Aspose.Words.dd146f36-30d2-4ada-beda-78cc664054b1.002.jpeg)
+﻿![Nissehuen mangler! –InDesign Vidensbibliotek](../Billeder//Christmas.jpeg)
+![Billedresultat for hei hÃ¥ndbold logo](../Billeder//HEILOGO.jpeg)
 
 **Håndboldtræning (U6 og U7) d. 16. december 2023**
 
