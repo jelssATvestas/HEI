@@ -1,6 +1,6 @@
 ﻿![Billedresultat for hei hÃ¥ndbold logo](../../Billeder//HEILOGO.jpeg)
 
-**Håndboldtræning (U6 og U7) d. 4. marts 2023**
+**Håndboldtræning (U6 og U7) d. 31. August 2024**
 
 **Inden træning:** 
 
@@ -8,7 +8,10 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 
 **Opvarmning:**
 
-- Alle børn med røde trøjer, hvide sko, der har en hund, en kat, alle med hestehale, alle der kan lide pizza, alle der har en lillebror, alle der kan lide broccoli, alle der har en nisse på loftet, alle der har set Gurli Gris,  
+- Alle børn med røde trøjer, hvide sko, der har en hund, en kat, alle med hestehale, alle der kan lide pizza, alle der har en lillebror, alle der kan lide broccoli, alle der kan lide slik, alle der har set Gurli Gris,  
+- Trække gulerødder op
+
+
 - Kaptajnen siger! – **kun hvis der er tid**
   - Klar til inspektion - **Trille bold på ben/arme/mave** - 8-taller mellem ben - **Hold fast i bolden** - Trille bold og stop med numsen, maven, panden - **Bommen kommer** - Kaptajnens koner kommer – Rød, gul, grøn. Slut med krokodillerne kommer og **Drikkepause**
 
