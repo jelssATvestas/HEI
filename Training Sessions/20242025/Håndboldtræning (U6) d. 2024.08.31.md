@@ -15,13 +15,18 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 - Kaptajnen siger! – **kun hvis der er tid**
   - Klar til inspektion - **Trille bold på ben/arme/mave** - 8-taller mellem ben - **Hold fast i bolden** - Trille bold og stop med numsen, maven, panden - **Bommen kommer** - Kaptajnens koner kommer – Rød, gul, grøn. Slut med krokodillerne kommer og **Drikkepause**
 
-Stafet (ca. 6 børn i hver række): 
 
-- Bære bold med maverne
-- Bære bold med ryggen
-- Løb og spil (man må ikke løbe med bold)
-- Flyt bold mellem med samlede arme (bold skal balanceres)
-- Trille bold omkring kegle
+Skubbe-leg (Rundkreds og en er i midten og en skal kommer ind, resten skal dække af).
+
+**Drikkepause**
+
+-Fire
+---
+--Aflevering i firkant med én bold
+--Afleveringer i firkant med to bolde
+--Aflevering i bevægelse. Ind og stemple mod kegle, aflevering af bold ved at vippe/kaste med fingre til medspiller der løber ind og modtager
+
+**Drikkepause**
 
 **Tre baner:** 
 
