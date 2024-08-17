@@ -9,22 +9,26 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 **Opvarmning:**
 
 - Alle børn med røde trøjer, hvide sko, der har en hund, en kat, alle med hestehale, alle der kan lide pizza, alle der har en lillebror, alle der kan lide broccoli, alle der kan lide slik, alle der har set Gurli Gris,  
+
 - Trække gulerødder op
 
+- Kaptajnen siger!
+  - Klar til inspektion 
+  - Trille bold på ben/arme/mave 
+  - 8-taller mellem ben 
+  - Hold fast i bolden
+  - Trille bold og stop med numsen, maven, panden 
+  - Kaptajnens koner kommer 
+  – Rød, gul, grøn. 
+  - Slut med krokodillerne kommer
 
-- Kaptajnen siger! – **kun hvis der er tid**
-  - Klar til inspektion - **Trille bold på ben/arme/mave** - 8-taller mellem ben - **Hold fast i bolden** - Trille bold og stop med numsen, maven, panden - **Bommen kommer** - Kaptajnens koner kommer – Rød, gul, grøn. Slut med krokodillerne kommer og **Drikkepause**
 
+Skubbe-leg (Rundkreds og en er i midten og en skal kommer ind, resten skal dække af). – **kun hvis der er tid**
 
-Skubbe-leg (Rundkreds og en er i midten og en skal kommer ind, resten skal dække af).
-
-**Drikkepause**
-
--Fire
----
---Aflevering i firkant med én bold
---Afleveringer i firkant med to bolde
---Aflevering i bevægelse. Ind og stemple mod kegle, aflevering af bold ved at vippe/kaste med fingre til medspiller der løber ind og modtager
+- Fire sammen **kun hvis der er tid**
+ - Aflevering i firkant med én bold
+ - Afleveringer i firkant med to bolde
+ - Aflevering i bevægelse. Forsøg at gribe og aflevere i en bevægelse.
 
 **Drikkepause**
 
