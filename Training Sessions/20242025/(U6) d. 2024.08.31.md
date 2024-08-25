@@ -10,6 +10,8 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 
 - Sikkert mange nye så måske navne runde?
 
+
+
 - Alle børn med:
 	- Røde trøjer, 
 	- hvide sko, 
@@ -29,7 +31,9 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 - Alle børn ligger ned i en ring. 
 	- Børn tiller hele vejen rundt over de andre.
 
-- Kaptajnen siger!
+- Haleleg (kun hvis der er tid)
+
+- Kaptajnen siger! (kun hvis der er tid)
 	- Klar til inspektion 
 	- Trille bold på ben/arme/mave 
 	- 8-taller mellem ben 
