@@ -24,6 +24,8 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 
 - Trække gulerødder op
 
+- Rød Gul Grøn Stop!
+
 - Kaptajnen siger!
   - Klar til inspektion 
   - Trille bold på ben/arme/mave 
@@ -34,10 +36,10 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
   – Rød, gul, grøn. 
   - Slut med krokodillerne kommer
 
+- Skubbe-leg – (kun hvis der er tid)
+	- Rundkreds og en er i midten og en skal kommer ind, resten skal dække af 
 
-Skubbe-leg (Rundkreds og en er i midten og en skal kommer ind, resten skal dække af). – **kun hvis der er tid**
-
-- Fire sammen **kun hvis der er tid**
+- Fire sammen (kun hvis der er tid)
  - Aflevering i firkant med én bold
  - Afleveringer i firkant med to bolde
  - Aflevering i bevægelse. Forsøg at gribe og aflevere i en bevægelse.
