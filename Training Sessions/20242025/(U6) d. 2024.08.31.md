@@ -26,6 +26,9 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 
 - Rød Gul Grøn Stop!
 
+- Alle børn ligger ned i en ring. 
+	- Børn tiller hele vejen rundt over de andre.
+
 - Kaptajnen siger!
 	- Klar til inspektion 
 	- Trille bold på ben/arme/mave 
