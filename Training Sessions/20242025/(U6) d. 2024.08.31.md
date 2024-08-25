@@ -27,22 +27,22 @@ Opstilling af mål (hvis det ikke allerede er gjort) – To mål til bane
 - Rød Gul Grøn Stop!
 
 - Kaptajnen siger!
-  - Klar til inspektion 
-  - Trille bold på ben/arme/mave 
-  - 8-taller mellem ben 
-  - Hold fast i bolden
-  - Trille bold og stop med numsen, maven, panden 
-  - Kaptajnens koner kommer 
-  – Rød, gul, grøn. 
-  - Slut med krokodillerne kommer
+	- Klar til inspektion 
+	- Trille bold på ben/arme/mave 
+	- 8-taller mellem ben 
+	- Hold fast i bolden
+	- Trille bold og stop med numsen, maven, panden 
+	- Kaptajnens koner kommer 
+	– Rød, gul, grøn. 
+	- Slut med krokodillerne kommer
 
 - Skubbe-leg – (kun hvis der er tid)
 	- Rundkreds og en er i midten og en skal kommer ind, resten skal dække af 
 
 - Fire sammen (kun hvis der er tid)
- - Aflevering i firkant med én bold
- - Afleveringer i firkant med to bolde
- - Aflevering i bevægelse. Forsøg at gribe og aflevere i en bevægelse.
+	- Aflevering i firkant med én bold
+	- Afleveringer i firkant med to bolde
+	- Aflevering i bevægelse. Forsøg at gribe og aflevere i en bevægelse.
 
 **Drikkepause**
 
