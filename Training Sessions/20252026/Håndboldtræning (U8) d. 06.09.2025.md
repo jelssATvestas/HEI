@@ -4,7 +4,7 @@
 
 **Opvarmning:**
 
-- Kæde-tick – med lang kæde
+- Kæde-tick – med lang kæde - så de deler sig ikke op
 - Bondemanden hiver gulerødder op
 - Kaptajnen siger
 
