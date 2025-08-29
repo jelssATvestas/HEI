@@ -1,4 +1,4 @@
-﻿![Billedresultat for hei hÃ¥ndbold logo](../Billeder//HEILOGO.jpeg)
+﻿![Billedresultat for hei hÃ¥ndbold logo](../../Billeder//HEILOGO.jpeg)
 
 **Håndboldtræning (U8) d. 6. september 2025**
 
